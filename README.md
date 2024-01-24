@@ -1,7 +1,7 @@
 ### !Hola! Soy Javier Plo 👋
 
 
-✨Soy un estudiante de Grado Medio de Sistemas Microinformaticos y redes✨ 
+✨Soy un estudiante de Grado Superior Desarrollo de Aplicaciones Web✨ 
 
 - 👯 Trabajo bien en grupo
 - 🤔 Ayudo en las cosas que puedo y aporto nuevas ideas.
