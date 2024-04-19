@@ -5,7 +5,7 @@
 
 - 👯 Trabajo bien en grupo
 - 🤔 Ayudo en las cosas que puedo y aporto nuevas ideas.
-- 💬 Las cosas que no se las pregunto o investigo sobre ellas.
+- 💬 Las cosas que desconozco las pregunto o investigo sobre ellas.
 - ⚡ Me adapto facilmente a la presion en el trabajo.
 - 👨🏻‍💻 Actualmente no trabajo en nada me estoy formando.
 Mi objetivo es poder llegar a las practicas y formarme en un trabajo 🔥
